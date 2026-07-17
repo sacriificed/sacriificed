@@ -9,5 +9,7 @@
 
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ <img width="97" height="56" alt="tumblr_73f7a4549ed0605b829b8f4d318110ba_090ec702_100" src="https://github.com/user-attachments/assets/6a6f0064-c836-4a4a-bee6-98b6122235f6" />
 
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀  𝅄⠀࿙࿚ ⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) ⠀⠀⠀⠀⠀⠀࿙࿚ 𝅄
+
 
 
